@@ -1,1 +1,1 @@
-# resume
+![](C:\Users\PC\Desktop\resume\image\简历.png)
