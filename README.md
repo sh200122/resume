@@ -1,1 +1,1 @@
-# resume
+![简历](D:\桌面\面经\resume\images\resume.png)
