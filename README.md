@@ -1,1 +1,1 @@
-![简历](https://github.com/sh200122/resume/blob/master/images/resume.png)
+![简历](D:\桌面\面经\resume\images\石浩的简历.png)
